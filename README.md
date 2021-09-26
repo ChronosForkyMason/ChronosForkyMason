@@ -9,7 +9,7 @@
 - My Channels
 - YouTube: https://www.youtube.com/channel/UCcm2if-MTNz3G3thP_UnD8A
 - Second Channel: https://www.youtube.com/channel/UCirRTNcrWuwM0C58KUYcPGw
-- Twitch: https://www.twitch.tv/chronosforkymason
+- Twitch: https://www.twitch.tv/chronospliskin
 -
 - If you want to support me you can visit my Patreon and sub there.
 - Patreon: https://www.patreon.com/NathanMField
